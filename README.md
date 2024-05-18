@@ -18,6 +18,6 @@ I work in the field of materials. My favorite is thermodynamics and fluid dynami
 ![Pedro](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExempheGczb3duOG8yenBkZG1kNGo3ajBtZHBmeTZ2OXR1ZmU2M2Q2YiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/tHIRLHtNwxpjIFqPdV/giphy.gif)
 ![Pedro](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExempheGczb3duOG8yenBkZG1kNGo3ajBtZHBmeTZ2OXR1ZmU2M2Q2YiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/tHIRLHtNwxpjIFqPdV/giphy.gif)
 ![Pedro](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExempheGczb3duOG8yenBkZG1kNGo3ajBtZHBmeTZ2OXR1ZmU2M2Q2YiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/tHIRLHtNwxpjIFqPdV/giphy.gif)
-![Pedro](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExempheGczb3duOG8yenBkZG1kNGo3ajBtZHBmeTZ2OXR1ZmU2M2Q2YiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/tHIRLHtNwxpjIFqPdV/giphy.gif)
+
 
 
